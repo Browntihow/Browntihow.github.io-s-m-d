@@ -1,2 +1,2 @@
-# browntihow.github.io/suoyan/
+# Browntihow.github.io/suoyan/
 my thoughts my wealth my ideas my heart myself
